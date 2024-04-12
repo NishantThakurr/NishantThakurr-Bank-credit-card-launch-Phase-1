@@ -45,8 +45,8 @@ Customers with moderate credit scores but very low credit limits are potential c
 •They have low annual income but still have a good transaction amount as there interests lie mostly in fashion and tech.
 
 
+![S2](https://github.com/NishantThakurr/NishantThakurr-Bank-credit-card-launch-Phase-1/assets/102639991/af4c21c7-4db7-459f-a8da-5f1e517d11d6)
+![S3](https://github.com/NishantThakurr/NishantThakurr-Bank-credit-card-launch-Phase-1/assets/102639991/6be9d065-34db-41ff-a967-277eeb5cddfa)
+![S4](https://github.com/NishantThakurr/NishantThakurr-Bank-credit-card-launch-Phase-1/assets/102639991/60de4421-667e-4e43-9f9b-5a312c104e0d)
+![Screenshot1](https://github.com/NishantThakurr/NishantThakurr-Bank-credit-card-launch-Phase-1/assets/102639991/8e4e329a-9c0e-4773-ba84-2a5b96ed84f4)
 
-![S4](https://github.com/NishantThakurr/Bank-credit-card-launch-Phase-1/assets/102639991/e71200b9-0eba-42fd-88d9-59da97ee1aeb)
-![S3](https://github.com/NishantThakurr/Bank-credit-card-launch-Phase-1/assets/102639991/5a58287a-67f1-47b8-8422-dd44182556fb)
-![Screenshot1](https://github.com/NishantThakurr/Bank-credit-card-launch-Phase-1/assets/102639991/aab15f62-ecd2-4d9c-850a-ef2426f49e03)
-![S2](https://github.com/NishantThakurr/Bank-credit-card-launch-Phase-1/assets/102639991/8fddd44c-456e-4b7d-9ae2-1c1e78dc9d2f)
